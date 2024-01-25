@@ -1,0 +1,2 @@
+# teledovizbot
+M.IOnur SEKİZKARDEŞ
